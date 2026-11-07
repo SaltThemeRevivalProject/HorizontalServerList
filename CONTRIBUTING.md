@@ -1,4 +1,4 @@
-So, you're looking to contribute? Nice!
+So, you're looking to contribute? Nice!!
 
 This will help you get started.
 
